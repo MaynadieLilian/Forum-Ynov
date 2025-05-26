@@ -86,3 +86,10 @@ Membres :
 - MATA Loan
 
 ----------------------
+
+Groupe: Chicken Lovers
+Membres :
+-Tisserant Lenny
+-Ouiazem Nessim
+-Shore Louis
+-Maynadié--Rodriguez Lilian
